@@ -8,7 +8,7 @@
 - **E-mail:** lapkes@gmail.com
 - **Telegram:** @Luidgy
 - [LinkedIn](www.linkedin.com/in/lapkes)
-- Discord rsschool: Lapkes(@lu1dgy)
+- **Discord rsschool**: Lapkes(@lu1dgy)
 
 ## About myself:
 
